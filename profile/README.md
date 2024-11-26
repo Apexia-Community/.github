@@ -49,7 +49,7 @@ We’re active across multiple platforms. Stay updated and connected:
 ## 🤝 Sponsors & Partners
 
 Interested in collaborating? Apexia welcomes partnerships with organizations passionate about education and innovation.  
-[Sponsor Us](https://hhbqah83d5k.typeform.com/to/your-form)
+[Sponsor Us](https://hhbqah83d5k.typeform.com/to/Ht4dVGOa)
 
 ---
 
@@ -57,7 +57,7 @@ Interested in collaborating? Apexia welcomes partnerships with organizations pas
 
 We’d love to hear from you!  
 - **Website**: [www.apexia.tech](https://www.apexia.tech)  
-- **Email**: [contact@apexia.tech](mailto:contact@apexia.tech)  
+- **Email**: [contact@apexia.tech](mailto:apexiacontact@gmail.com)  
 
 ---
 
@@ -67,5 +67,4 @@ For logos, colors, and more, check out our [Brand Kit](https://apexia-community.
 
 ---
 
-Let’s innovate, collaborate, and grow together! 🌟  
-**#JoinApexia**
+Let’s innovate, collaborate, and grow together! 🌟
