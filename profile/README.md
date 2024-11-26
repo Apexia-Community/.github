@@ -15,7 +15,7 @@ We focus on:
 - Organizing insightful **Talks and Events**.
 - Building a strong community of **future-ready professionals**.
 
-[Learn more about us](https://www.apexia.tech/about)
+[Learn more about us](https://www.apexia.tech)
 
 ---
 
