@@ -56,8 +56,8 @@ Interested in collaborating? Apexia welcomes partnerships with organizations pas
 ## 📩 Contact Us
 
 We’d love to hear from you!  
-- **Website**: [www.apexia.tech](https://www.apexia.tech)  
-- **Email**: [contact@apexia.tech](mailto:apexiacontact@gmail.com)  
+- **Website**: [www.apexia.club](https://www.apexia.club)  
+- **Email**: [contact@apexia.club](mailto:apexiacontact@gmail.com)  
 
 ---
 
